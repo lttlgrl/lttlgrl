@@ -24,7 +24,7 @@ I help out with things sometimes
 
 **discord:** `hackclient`
 
-**server:** https://dsc.gg/unverifiedv2
+**server:** https://dsc.gg/unverified
 
 ---
 
