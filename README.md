@@ -2,7 +2,7 @@
 
 # hi 
 
-im also known online as **ignorance**, **ignore**, or **xo**
+still in highschool i try my best
 
 
 [![Discord](https://img.shields.io/badge/Discord-hackclient-5865F2?style=flat-square\&logo=discord\&logoColor=white)](https://dsc.gg/unverifiedv2)
